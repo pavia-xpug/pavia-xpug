@@ -4,7 +4,7 @@
 
 Dove e quando?
 * mercoledì 30 aprile 2014
-* TBD (probabilmente Spazio Geco di Giussago o  7Pixel di Pavia)
+* TBD (probabilmente Spazio Geco di Pavia, 7Pixel di Giussago)
 
 Cosa facciamo?
 * 19:00 Chiacchere e networking
